@@ -1,2 +1,2 @@
 # stavn_bot
-congrats, thanks and prayers, classic, etc.
+congrats, thoughts and prayers, classic, etc.
